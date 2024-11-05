@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @tuantechno
+- 👀 I’m interested in programing and anime
+- 🌱 I’m currently learning python, Godot
+- 💞️ I’m looking to collaborate on no body
+- 📫 How to reach me: my youtube, zalo, discord accouunt
+- 😄 Pronouns: (yeb, my eng is bad idk)
+- ⚡ Fun fact: my waifu in a anime in 2021 (or 2022, idk)
